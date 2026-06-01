@@ -20,9 +20,9 @@ Solo me queda agradecerte, amor. Agradecerte por verme como soy y quedarte. Sé 
 
 También quiero aprovechar esta última carta para pedirte perdón por todas aquellas veces que fui malo con vos, que actué de mala manera, que te ignoré cuando querías atención, que no te escuché, que fui un mal novio. Quiero disculparme por esas veces.
 
-Seguro me olvidé de muchas cosas, pero no hay que olvidarlas porque cada una de esas pequeñas cosas formaron parte de lo que somos hoy.
+Seguro me olvidé de muchas cosas, pero no hay que olvidarlas porque cada una de esas pequeñas cosas formaron parte de lo que somos hoy. Capaz esto no sea mucho, no sea nada a comparación de lo que te mereces, pero para vos las cosas que hago, las hagon amor.
 
-En fin, te amo tres millones, amor. Sos lo mejor que me pasó en esta vida y deseo de corazón que camines conmigo toda la vida (mirá que mis hijos tienen que salir con tus ojitos bellos).
+En fin, te amo tres millones mi bebe tikita. Sos lo mejor que me pasó en esta vida y deseo de corazón que camines conmigo toda la vida (mirá que mis hijos tienen que salir con tus ojitos bellos).
 
 Te amo, amor de mi vida.
 </p>`
